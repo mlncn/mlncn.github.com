@@ -12,6 +12,8 @@ It's all in who you know, really— in this case, two of my co-founders.
 
 Brian Dominick came to <a href="http://agaric.com/">Agaric</a> in the beginning of January 2012, and led us on our best year for revenues, ever.  Agaric, founded in 2006, is a web development shop organized as a collective of equal worker-owners.  Brian joined in large part because of his interest in structuring egalitarian organizations.
 
+Wesley Adam Shaffer came to my house as a couchsurfer organizing the travel (and place to stay, which is where my house came in) for classical concert pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>.  He is also co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own.
+
 I have always wanted to help people gain the most power possible over our own lives.  I have also always believed that a for-profit isn't how to do it.
 
 A self-coordinated movement of millions is harder to start than a business that helps people.

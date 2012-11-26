@@ -14,4 +14,4 @@ I have always wanted to help people gain the most power possible over our own li
 
 A self-coordinated movement of millions is harder to start than a business that helps people.
 
-The first idea Wesley pitched us was 
+The first idea Wesley pitched us was an app to connect people who would make good workout partners.  We found that there are many who have tried to do something like this.  The best current effort is probably from our colleagues at <a href="http://tivity.us/">Tivity</a>.

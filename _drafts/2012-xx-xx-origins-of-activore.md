@@ -11,3 +11,7 @@ Writing about the origin of Activore feels odd because while I cannot claim a sc
 
 
 I have always wanted to help people gain the most power possible over our own lives.  I have also always believed that a for-profit isn't how to do it.
+
+A self-coordinated movement of millions is harder to start than a business that helps people.
+
+The first idea Wesley pitched us was 

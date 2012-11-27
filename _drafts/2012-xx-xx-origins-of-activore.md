@@ -3,9 +3,11 @@ layout: post
 title: How I Became An Activore
 ---
 
-Writing about the origin of Activore feels odd because i cannot claim a scrap of credit for the initial idea— yet i am in the middle of bringing it into the world.  This is because bringing together Wes and Brian
+I cannot claim a scrap of credit for the initial idea of Activore— yet i am in the middle of bringing it into the world.
 
-It's all in who you know, really— in this case, two of my co-founders.
+It's all in who you know— in this case, two of my co-founders.
+
+The most important thing i did for Activore was bring Wes and Brian together.
 
 Brian Dominick came to <a href="http://agaric.com/">Agaric</a> in the beginning of January 2012, and led us on our best year for revenues, ever.  Agaric, founded in 2006, is a web development shop organized as a collective of equal worker-owners (or, simply, principals).  Brian joined in large part because of his interest in structuring egalitarian organizations.
 

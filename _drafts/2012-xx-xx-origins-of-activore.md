@@ -3,9 +3,7 @@ layout: post
 title: How I Became An Activore
 ---
 
- - bringing together Wes and Brian
-
-Writing about the origin of Activore feels odd because i cannot claim a scrap of credit for the initial idea— yet i am in the middle of bringing it into the world.
+Writing about the origin of Activore feels odd because i cannot claim a scrap of credit for the initial idea— yet i am in the middle of bringing it into the world.  This is because bringing together Wes and Brian
 
 It's all in who you know, really— in this case, two of my co-founders.
 

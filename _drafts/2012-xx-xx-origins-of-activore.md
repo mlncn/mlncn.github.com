@@ -3,6 +3,9 @@ layout: post
 title: How I Became An Activore
 ---
 
+ - big goals of helping the world with no way to get there
+ - activore as a means... and an end?
+
 I cannot claim a scrap of credit for the initial idea of Activore— yet i am in the middle of bringing it into the world.
 
 It's all in who you know— in this case, two of my co-founders.
@@ -13,9 +16,11 @@ Brian Dominick came to <a href="http://agaric.com/">Agaric</a>, a web developmen
 
 Wesley Adam Shaffer came to my house as a couchsurfer organizing the travel (and place to stay, which is where my house came in) for classical concert pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>.  He is also co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own.
 
-For my part, i have always wanted to help people gain the most power possible over our own lives.  I also never come up with for-profit ways to do that.  Indeed, even the typical top-heavy well-staffed not-for-profit, the kind that you're most likely to hear about and be asked to donate to, is inimical to the volantary association of people i think we need to become to change the world.
+This does tie into Activore.
 
-Wesley shared with me a very similar vision for an organization that is about connecting people and helping make great and shared ideas become reality.  Brian shares the broader goal of people having more control of our lives, and the equalization of power this necessitates, but is skeptical of the "visions unite" organization approach.
+I have always wanted to help people gain the most power possible over our own lives.  I also never come up with for-profit ways to do that.  Indeed, even the typical top-heavy well-staffed not-for-profit, the kind that you're most likely to hear about and be asked to donate to, is inimical to the volantary association of people i think we need to become to change the world.
+
+On our first meeting, Wesley shared with me a very similar vision for an organization that is about connecting people and helping make great and shared ideas become reality.  Brian shares the broader goal of people having more control of our lives, and the equalization of power this necessitates, but is skeptical of the "visions unite" organization approach.
 
 We all knew, however, that a self-coordinated movement of millions is harder to start than a business that helps people.
 

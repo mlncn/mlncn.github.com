@@ -9,15 +9,15 @@ It's all in who you know— in this case, two of my co-founders.
 
 The most important thing i did for Activore was bring Wes and Brian together.
 
-Brian Dominick came to <a href="http://agaric.com/">Agaric</a> in the beginning of January 2012, and led us on our best year for revenues, ever.  Agaric, founded in 2006, is a web development shop organized as a collective of equal worker-owners (or, simply, principals).  Brian joined in large part because of his interest in structuring egalitarian organizations.
+Brian Dominick came to <a href="http://agaric.com/">Agaric</a>, a web development shop i cofounded in 2006, in the beginning of January 2012 and led us on our best year for revenues, ever.  Brian joined Agaric, which is organized as a collective of equal worker-owners (or, simply, principals), in part because of his interest in egalitarian organizatonal structure.
 
 Wesley Adam Shaffer came to my house as a couchsurfer organizing the travel (and place to stay, which is where my house came in) for classical concert pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>.  He is also co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own.
 
-I have always wanted to help people gain the most power possible over our own lives.  I have also always believed that a for-profit isn't how to do it.  Indeed, even the typical top-heavy well-staffed not-for-profit, the kind that you're most likely to hear about and be asked to donate to, is inimical to the volantary association of people we need to change the world.
+For my part, i have always wanted to help people gain the most power possible over our own lives.  I also never come up with for-profit ways to do that.  Indeed, even the typical top-heavy well-staffed not-for-profit, the kind that you're most likely to hear about and be asked to donate to, is inimical to the volantary association of people i think we need to become to change the world.
 
 Wesley shared with me a very similar vision for an organization that is about connecting people and helping make great and shared ideas become reality.  Brian shares the broader goal of people having more control of our lives, and the equalization of power this necessitates, but is skeptical of the "visions unite" organization approach.
 
-A self-coordinated movement of millions is harder to start than a business that helps people.
+We all knew, however, that a self-coordinated movement of millions is harder to start than a business that helps people.
 
 Agaric worked with, and discussed working with, many organizations, businesses, and startups.  In 2011, with the influnce of then-principal <a href="http://misscs.com/">Claudina Sarahe</a>, we concluded that moving away from only providing services toward developing our own product , or even starting a new company is the way to bigger and better things
 

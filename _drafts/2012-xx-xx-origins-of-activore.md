@@ -8,7 +8,7 @@ title: How I Became An Activore
 
 I cannot claim a scrap of credit for the initial idea of Activore— yet i am in the middle of bringing it into the world.
 
-It's all in who you know— in this case, two of my co-founders.
+Like so many things, it's all in who you know— in this case, two of my co-founders.
 
 The most important thing i did for Activore was bring Wes and Brian together.
 

@@ -6,15 +6,15 @@ title: How I Became An Activore
  - big goals of helping the world with no way to get there
  - activore as a means... and an end?
 
-I cannot claim a scrap of credit for the initial idea of Activore— yet i am in the middle of bringing it into the world.
+I cannot claim a scrap of credit for the initial idea of Activore— yet here i am, helping bring it into the world.
 
 Like so many things, it's all in who you know— in this case, two of my co-founders.
 
 The most important thing i did for Activore was bring Wes and Brian together.
 
-Brian Dominick came to <a href="http://agaric.com/">Agaric</a>, a web development shop i cofounded in 2006, in the beginning of January 2012 and led us on our best year for revenues, ever.  Brian joined Agaric, which is organized as a collective of equal worker-owners (or, simply, principals), in part because of his interest in egalitarian organizatonal structure.
+Wesley Adam Shaffer, characteristically, came into my life and my house doing a favor for a friend.  He organized the travel (and place to stay, which is where my house came in, found on < href="http://couchsurfing.org/">CouchSurfing.org</a>) for classical concert pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>.  As co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own, Wes made the trip from Pennsylvania to Massachusetts pay for itself by delivering equipment in the area.
 
-Wesley Adam Shaffer came to my house as a couchsurfer organizing the travel (and place to stay, which is where my house came in) for classical concert pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>.  He is also co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own.
+Brian Dominick came to <a href="http://agaric.com/">Agaric</a>, a web development shop i cofounded in 2006, in the beginning of January 2012 and led us on our best year for revenues, ever.  Brian joined Agaric, which is organized as a collective of equal worker-owners (or, simply, principals), in part because of his interest in egalitarian organizatonal structure.
 
 This does tie into Activore.
 

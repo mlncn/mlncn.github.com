@@ -12,7 +12,7 @@ Like so many things, it's all in who you know— in this case, two of my co-foun
 
 The most important thing i did for Activore was bring Wes and Brian together.
 
-Wesley Adam Shaffer, characteristically, came into my life doing a favor for a friend.  He had his people help organize travel to a concert for classical pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a> and found a place to stay, my house, on <a href="http://couchsurfing.org/">CouchSurfing.org</a>.  As co-founder of Life Long Solutions, a fitness equipment supply and distribution company that owns a gym of its own, Wes made the trip from Pennsylvania to Massachusetts pay for itself by delivering equipment in the area.
+Characteristically, Wesley Adam Shaffer came into my life doing a favor for a friend.  As co-founder of Life Long Solutions, a fitness equipment supply and distribution company, he had met classical pianist <a href="http://elena-ulyanova.com/">Elena Ulyanova</a>. A musician himself, Wes helped organize travel to a concert for Elena, and an employee of his found a place to stay, my house, on <a href="http://couchsurfing.org/">CouchSurfing.org</a>.  Wes made the trip from Pennsylvania to Massachusetts pay for itself by delivering equipment in the area.
 
 Brian Dominick and i met when i found <a href="http:// i helped support the , starting an occasional correspondence and meeting at media reform conferences. came to <a href="http://agaric.com/">Agaric</a>, a web development shop i cofounded in 2006, in the beginning of January 2012 and led us on our best year for revenues, ever.  Brian joined Agaric, which is organized as a collective of equal worker-owners (or, simply, principals), in part because of his interest in egalitarian organizatonal structure.
 

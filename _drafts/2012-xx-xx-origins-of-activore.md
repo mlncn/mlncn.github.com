@@ -6,7 +6,7 @@ title: How I Became An Activore
  - big goals of helping the world with no way to get there
  - activore as a means... and an end?
 
-I cannot claim a scrap of credit for the initial idea of Activore— yet here i am, helping bring it into the world.
+I cannot claim a scrap of credit for the initial idea of Activore— yet here i am, and have been from the start, helping bring it into the world.
 
 Like so many things, it's all in who you know— in this case, two of my co-founders.
 
